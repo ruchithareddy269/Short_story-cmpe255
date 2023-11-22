@@ -6,4 +6,4 @@ Medium Article Link: https://medium.com/@ruchithareddy269/applicant-screening-sy
 
 Presentation Link: https://docs.google.com/presentation/d/1sPfpFPVN-gmuu7s6Jz8rpVGcaUlUN3hMotVzbwoy7ww/edit?usp=sharing
 
-Youtube Video Link:
+Youtube Video Link: https://youtu.be/-nEIpInIiQY
